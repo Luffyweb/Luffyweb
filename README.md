@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Luffy
 - 👀 I’m interested in Tech
 - 🌱 I’m currently learning about Web Development 
-- 📫 How to reach me https://luffywebbd.t.me
+- 📫 How to reach me blank 😔
 - 😄 Pronouns: He,Him,His
 - ⚡ Fun fact: 😀 Nothing Ig
 
